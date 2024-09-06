@@ -1,1 +1,1 @@
-hi, this is the programming for finance
+hi, 四體不勤，五穀不分, 畫餅充飢 而己
